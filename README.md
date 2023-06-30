@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **https://rajpootdivyanshu37@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1fyC-A5eB8hMMSPzdbjtntPGt9CTU1cPt/view](https://drive.google.com/file/d/1fyC-A5eB8hMMSPzdbjtntPGt9CTU1cPt/view)
+- 📄 Know about my experiences [Resume]([https://drive.google.com/file/d/1fyC-A5eB8hMMSPzdbjtntPGt9CTU1cPt/view](https://drive.google.com/file/d/19oywxMqB2Ged7Okpi_qwHXAuAFI3FcQ4/view?usp=drivesdk))
 
 - ⚡ Fun fact **Passionate Dancer🕺 and Gamer🎮**
 
